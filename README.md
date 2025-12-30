@@ -1,0 +1,78 @@
+# grentperez & Ruel – Dandelion
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Your body must be
+cold when I'm away
+My bones need a warm
+touch from your embrace
+You're calling on me,
+I can't answer
+I'm far out of reach and
+you're dancing alone
+There I go again on the road
+I'm missing you I wish
+I were home with you
+Alone with you, I do
+If I could choose anywhere to be
+I'd wanna be with you
+I'm tired of being away
+from your side, my dandelion
+We could go anywhere tonight
+As long as I'm with you
+Doesn't even really matter
+what we do
+Wish that I was by your side,
+my dandelion
+We could go anywhere tonight,
+dandelion
+You take up every corner
+of my brain
+I'm blinking just so I can
+see your face, and
+Every picture that I've
+ever taken
+Is wasted if you're not part
+of the view
+There's nothing less I'm
+willing to lose
+I'm counting down the days
+till it's you
+And I sitting eye to eye, and
+I just hope that you are too
+If I could choose anywhere to be
+I'd wanna be with you
+I'm tired of being away
+from your side, my dandelion
+We could go anywhere tonight
+As long as I'm with you
+Doesn't even really matter
+what we do
+Wish that I was by your side,
+my dandelion
+We could go anywhere tonight,
+dandelion
+Oh, dandelion
+(Dandelion)
+Oh, we could go anywhere
+We could go anywhere we need to,
+baby
+We could go anywhere we need to,
+baby
+We could go anywhere we need to,
+baby
+We could go anywhere
+If I could choose anywhere to be
+I'd wanna be with you
+I'm tired of being away
+from your side, my dandelion
+We could go anywhere tonight
+As long as I'm with you
+Doesn't even really matter
+what we do
+Wish that I was by your side,
+my dandelion
+We could go anywhere tonight,
+dandelion
+```
